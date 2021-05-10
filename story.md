@@ -1,0 +1,1 @@
+Once upon a time there was a wood cutter who went in the forest to cut some wood.Later his axe fell down in the river below the tree.An angel from the river came outside with a golden axe and silver axe and asked whether it was of the woodcutter . But he denied.The angel got happy by his behaviour and gave him all the 3 axes ,i.e, gold,silver and wood.
